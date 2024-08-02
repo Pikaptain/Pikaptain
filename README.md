@@ -1,4 +1,4 @@
-I’m @Pikaptain. You can call me... Hum, no, don't call me.
+I’m Pikaptain. You can call me... Hum, no, don't call me.
 
 I like programming. And playing videogames. And drawing.
 
